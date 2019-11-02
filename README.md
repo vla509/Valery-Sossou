@@ -1,0 +1,2 @@
+# Valery-Sossou
+Graphic designer 
